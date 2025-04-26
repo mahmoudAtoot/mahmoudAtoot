@@ -1,7 +1,7 @@
 # Mahmoud Atoot
 
 📞 **Contact:** 0566450460 / 0595773243  
-📧 **Email:** mahmoudatoot.99@gmail.com  
+📧 **Email:** matoot64@gmail.com  
 📍 **Location:** Ramallah & Al-Bireh  
 🔗 **LinkedIn:** [Mahmoud Atoot](https://www.linkedin.com/in/mahmoud-atoot-073210362/)
 
